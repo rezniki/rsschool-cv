@@ -5,7 +5,7 @@
 
 * [Instagram](https://www.instagram.com/reznik_sir/)
 * [VK](https://vk.com/igorreznik2001)
-* [Discord](Igor Reznik#7790)
+* Discord: Igor Reznik#7790
 * [Telegram](https://t.me/igor_014)
 
 ## Briefly about yourself
